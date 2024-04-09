@@ -1,0 +1,1 @@
+# jetyaz-l-m-metin2-gerekenkler
